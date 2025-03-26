@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with 'Hyper Text always Malfunctions a Lot'!
 - 💬 Ask me about OS (the only one where 'Start' means 'Shutdown')
 - 📫 How to reach me: Only if you dare... uhh, the email is below 👇
-- 😄 Pronouns: Oniichan
+- 😄 Pronouns: Oniichan~
 - ⚡ Fun fact: the Pronouns above was wrong, or were they?
 -->
